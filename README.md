@@ -1,4 +1,4 @@
-## 👏 Hi, I'm *your name here*
+## 👏 Hi, I'm Ayomide Adu
 ##  About Me
 Hi! I’m a freshman at UTSA majoring in Information Systems with a minor in Business. I’m interested in technology, business, and product management. I have retail experience at HomeSense, Sephora, and Cinemark. Outside of class, I enjoy watching TV shows and attending NSBE events.
 ## ⚒️ Skills
